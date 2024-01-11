@@ -1,0 +1,1 @@
+-Acabou que o problema juntamente ao enunciado tava errado, então vou ter que deixar pra la
